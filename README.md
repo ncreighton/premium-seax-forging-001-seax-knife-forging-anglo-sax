@@ -1,0 +1,2 @@
+# premium-seax-forging-001-seax-knife-forging-anglo-sax
+Tired of generic knife forging guides that ignore the unique geometry and heat treatment of the seax? This lab gives you the exact Anglo-Saxon techniques to forge a blade that's both historically accurate and functionally superior.  This lab solves the problem of incomplete or generic instructions by providing a step-by-step process from steel sele
